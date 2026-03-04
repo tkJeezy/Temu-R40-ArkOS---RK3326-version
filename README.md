@@ -1,0 +1,1 @@
+# Temu-R40-ArkOS---RK3326-version
